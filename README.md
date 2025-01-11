@@ -8,7 +8,7 @@ It works on simultaneous multiple threading without any proxy use.
 Just Click and run User friendly Interface.
 
 ## for the password ping the team :- https://t.me/bitrige
-https://github.com/user-attachments/assets/e0a64d95-76fa-41f2-b7a8-5e860cf38ff8
+![1_5181649610493396569](https://github.com/user-attachments/assets/9cc883b8-fa02-40d8-b5c7-c14c1aa36098)
 ![1](https://github.com/user-attachments/assets/498fe3f2-54d6-4a76-8035-bc15fc19930d)
 ![2](https://github.com/user-attachments/assets/877b1b6d-0436-4ac8-b4ed-12c8b6c319b6)
 ![3](https://github.com/user-attachments/assets/4d55b480-00ae-4b00-a479-965165fb8746)
